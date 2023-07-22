@@ -1,2 +1,8 @@
 # smoke-bomb
  
+## Vape
+
+### Essential oils
+https://www.walmart.com/ip/Mainstays-15ml-Essential-Oil-Eucalyptus/1635142576?wl13=3795&selectedSellerId=0&http://clickserve.dartsearch.net/link/click?lid=92700060762254883&ds_s_kwgid=58700006715445296&ds_s_inventory_feed_id=97700000003583668&ds_a_cid=654818135&ds_a_caid=13956209185&ds_a_agid=126452889113&ds_a_lid=pla-1392082700544&ds_a_cid=116919406&ds_a_caid=361575031&ds_a_agid=1200667322826314&ds_a_fiid=&ds_a_lid=pla-4578641339573147&&ds_e_adid=&ds_e_matchtype=search&ds_e_device=c&ds_e_network=o&ds_e_product_group_id=4578641339573147&ds_e_product_id=1635142576_0&ds_e_product_merchant_id=27449&ds_e_product_country=US&ds_e_product_language=EN&ds_e_product_channel=Local&ds_e_product_store_id=3795&ds_url_v=2&ds_dest_url=?&adid=222222222320000000000_1200667322826314_lia&wmlspartner=wmtlabs&wl0=e&wl1=o&wl2=c&wl3=75041804331059&wl4=pla-4578641339573147&wl5=&wl6=&wl7=&wl10=Walmart&wl11=Local&wl12=1635142576_0&wl14=eucalyptus%20oils%20for%20vaping&veh=sem&msclkid=40127cf4395a1da5d2a51848063dc55b&gclid=40127cf4395a1da5d2a51848063dc55b&gclsrc=3p.ds
+
+https://www.walgreens.com/store/c/gurunanda-eucalyptus-essential-oil-eucalyptus/ID=prod6377723-product?ext=msnFY23_MSN_RET_RETAILDEMANDGEN_Catch+All+-+SSC_REV_SRC_PLA_PLA_NA_PLA_ENGRETAILDEMANDGEN_NB_All+Products_PLA_&gclid=ad7f6fda2e2d11df1c5a0b666e4b7f15&gclsrc=3p.ds&msclkid=ad7f6fda2e2d11df1c5a0b666e4b7f15
